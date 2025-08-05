@@ -16,4 +16,4 @@ Currently working as a **Technical Support Engineer** at **Haivision**, where I:
 
 ## 🌐 Personal Website
 
-Visit my personal website at [sfc.al](https://sfc.al)
+Visit my personal website at [samuel.computer](https://samuel.computer)
